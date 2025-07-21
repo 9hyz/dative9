@@ -1,4 +1,4 @@
- # ☻ WELCOME TO DATIVE9'S ABOUT ME DOCUMENT ☺︎ #
+ # ☻ WELCOME TO 9HYZ'S ABOUT ME DOCUMENT ☺︎ #
 
 
     ###### *〜 everything cereal or chocolate related tastes better at 23:60 〜* ######
