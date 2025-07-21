@@ -35,7 +35,7 @@
 
 ### **Current aspiration(s):** ### 
 
-> <i> 　　"make life work for me rather than vice versa" </i>
+> <i> 　　"fuck it we ball" </i>
 
 
 
